@@ -1,2 +1,2 @@
 # simonsays
-How high can yu get?
+How high can you get?
